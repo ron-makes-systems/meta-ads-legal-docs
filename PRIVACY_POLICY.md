@@ -1,6 +1,6 @@
 # Privacy Policy for Meta Ads Integration for Fibery
 
-**Effective Date:** 2024-12-16
+**Effective Date:** 2025-12-16
 
 ## 1. Introduction
 
